@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mranand21
+- 👋 Hi, I’m Mrinal Anand
 - 👀 I’m interested in Science & technology.
 - 🌱 I’m currently learning Web Development.
 

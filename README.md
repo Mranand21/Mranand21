@@ -16,7 +16,7 @@
 - 📫 How to reach me **anmrinal@gmail.com**
 
 - ⚡ Fun fact **11111111:Are you ill?
--               11111110:No,just feeling a bit off.**
+                 11111110:No,just feeling a bit off.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
